@@ -1,1 +1,1 @@
-# Config---culos-acessibilidade
+# Config-óculos-acessibilidade
